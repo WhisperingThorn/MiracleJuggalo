@@ -1,7 +1,8 @@
 <img width="854" height="364" alt="1000038632" src="https://github.com/user-attachments/assets/7f9fc8b8-eedb-4631-b1c6-5966415554cd" />
 
-Hi! I’m Asher, and I’m 18. I might seem a bit mean or distant when we first meet, but that’s just how I am at first. Please, if I ever come off as mean, don’t take it personally. I’m probably just in an angry mood or upset. If you see me being nice and cheerful, it usually means I’m in a good mood or I think you’re really cool. I have undiagnosed AuDHD (autism + ADHD traits), so I might act or communicate a little differently sometimes. Please don’t take it the wrong way.
+Hi! I’m Ash, and I’m 18. I might seem a bit mean or distant when we first meet, but that’s just how I am at first. Please don’t take it personally. If I’m ever short or quiet, I’m probably just upset or tired. If you see me being nice and cheerful, it usually means I’m in a good mood or I think you’re really cool.
 
+I have undiagnosed AuDHD (autism + ADHD traits), but I’m getting checked by a professional soon!! So sometimes I might act or communicate a bit differently. Please just be patient with me.
 
 ---
 
