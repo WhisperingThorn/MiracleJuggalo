@@ -76,5 +76,23 @@ You just want to connect with nice people, not start chaos.
 Note: I struggle to communicate sometimes. I might word things awkwardly, take a bit to reply, or accidentally sound off when I don’t mean to. I never mean to be rude
 I just have trouble expressing myself or keeping up in conversations sometimes. Please be patient with me!
 
+Family / friends !!! (≧∇≦)/
+
+↳ .👾.Sage !!.🤖 (My sister !!)༉[@BigTerraco](https://GitHub.com/BigTerraco)
+
+... 💕.ames! ◌ೄ‧₊ [@pikopikohammer](https://GitHub.com/pikopikohammer)
+
+↳ .🦇.Val! !!.🩸[@Valmpyre](https://GitHub.com/Valmpyre) 
+
+... 💝.Via!(aka Bellasean) ◌ೄ [@ArmyDreamerz](https://GitHub.com/ArmyDreamerz)
+
+↳ .🔥.Fleetway !!.💥 (Mom!)[@IloveFleetway](https://GitHub.com/ILoveFleetway)
+
+... 🦴.Vox! ◌ೄ‧₊[@MrCanine](https://GitHub.com/MrCanine)
+
+↳ .💫.TigryRoll! !!.🤖.[@t3rm1n4llycapricious](https://GitHub.com/t3rm1n4llycapricious)
+
+... 🌊.sonky! ◌ೄ‧₊[@windlesstorm](https://GitHub.com/windlesstorm)
+
 <img width="2047" height="638" alt="1000038633" src="https://github.com/user-attachments/assets/90da54c7-a8c1-4000-aea6-565be2e1e77e" />
 
