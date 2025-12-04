@@ -6,15 +6,7 @@ I have undiagnosed AuDHD (autism + ADHD traits), but I’m getting checked by a 
 
 ---
 
-My Stance on Shipping
-
-I’m not a proshipper. I used to be more open about it, but I’ve changed. Now I’d describe myself as a light shipper, which means I only enjoy ships that are healthy, age-appropriate, and respectful.
-
-Definitions:
-
-Proshipper: Someone who believes all fictional ships are acceptable, even those with harmful or problematic content.
-
-Light shipper: Someone who enjoys certain fictional pairings but has clear comfort and moral boundaries.
+i don't care or support any ships. if you want to yapp about ships, sure I don't mind.
 
 
 ![1000038631](https://github.com/user-attachments/assets/8cb45ad7-52bf-40e8-8a3a-16adffff3397)
